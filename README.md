@@ -1,4 +1,4 @@
-# Camino de Ukraine 🇺🇦
+# Camino de Ukraine :Flag: Ukraine:
 
 **Банка в Monobank:** [https://send.monobank.ua/jar/1wVuaTDtm](https://send.monobank.ua/jar/1wVuaTDtm)
 
