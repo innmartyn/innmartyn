@@ -20,4 +20,18 @@ Our names are Inna and Inga. We are Ukrainians. About a month ago we decided to 
 Follow us in Instagram:
 [@innmartyn](https://www.instagram.com/innmartyn/)
 [@inga_gala_km](https://www.instagram.com/inga_gala_km/). 
+
 Glory to Ukraine!🇺🇦
+
+____
+
+¡Hola!
+Lo sentimos, este texto está traducido del inglés al español por Google Traductor porque no sabemos español. Espero que no haya muchos errores 🙃
+
+Nuestros nombres son Inna e Inga. Somos ucranianos. Hace aproximadamente un mes decidimos hacer el Camino de Santiago, por nuestras intenciones y motivos personales. Este Camino es un viaje espiritual hacia nosotros mismos, pero no sería posible sin los soldados ucranianos. Como agradecimiento, decidimos aprovechar la oportunidad de estar en el extranjero y contarle a la gente más sobre nuestro país y la realidad en la que viven todos los ucranianos. Estamos recaudando dinero que transferiremos a una recaudación de fondos más grande oa voluntarios de nuestra confianza. Nadie debe olvidar que hay una guerra horrible en el centro de Europa. Ucrania es Europa. ¡Y necesitamos su dinero y su apoyo!
+
+Síguenos en Instagram:
+[@innmartyn](https://www.instagram.com/innmartyn/)
+[@inga_gala_km](https://www.instagram.com/inga_gala_km/). 
+
+¡Gloria a Ucrania!🇺🇦
